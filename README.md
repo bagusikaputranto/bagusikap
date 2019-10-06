@@ -1,0 +1,2 @@
+# bagusikap
+Alah pokok berisi
